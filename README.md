@@ -3,7 +3,7 @@
 ## Domain's what i hack for fun because yes lol
 http://bigcock.pl/ <br>
 http://agecore.pl<br>
-http://bestsiderp.pl<br>
+http://techcode.store<br>
 http://bigcock.pl<br>
 http://666shop.pl    <br>
 http://aveclient.pl   <br> 
