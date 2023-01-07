@@ -1,6 +1,7 @@
 # Simple Domain Hacking
 
 ## Domain's what i hack for fun because yes lol
+http://hypixelnig.ga <br>
 http://bigcock.pl/ <br>
 http://agecore.pl<br>
 http://techcode.store<br>
