@@ -4,7 +4,6 @@
 http://bigcock.pl/ <br>
 http://agecore.pl<br>
 http://techcode.store<br>
-http://bigcock.pl<br>
 http://666shop.pl    <br>
 http://aveclient.pl   <br> 
 http://akhost.pl    <br>
