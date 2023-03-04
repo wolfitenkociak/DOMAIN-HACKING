@@ -1,345 +1,345 @@
 # Simple Domain Hacking
 
 ## Domain's what i hack for fun because yes lol
-http://hypixelnig.ga <br>
-https://2b2tshop.store <br>
-https://666shop.pl <br>
-https://720rp.pl <br>
-https://acpis.pl <br>
-https://adrian.harezlak.pl <br>
-https://agecore.pl <br>
-https://airmc.pl <br>
-https://akyszdesign.pl <br>
-https://alienbot.pl <br>
-https://andrzej-solowiow.pl <br>
-https://angelmc.pl <br>
-https://antisquad.pl <br>
-https://aogiri-online.eu <br>
-https://apple-craft.pl <br>
-https://aqualeaks.pl <br>
-https://arecraft.pl <br>
-https://ariyateam.pl <br>
-https://asentra64.xyz <br>
-https://asf-rp.pl <br>
-https://autka-zgierz.pl <br>
-https://avalion.fun <br>
-https://aveclient.pl <br>
-https://aveclient.xyz <br>
-https://avehost.pl <br>
-https://avenisrp.pl <br>
-https://awokado.xyz <br>
-https://babok.com.pl <br>
-https://bawelniakowo.pl <br>
-https://bearzillagames.com <br>
-https://bedsteal.pl <br>
-https://beesee.pl <br>
-https://bestsiderp.pl <br>
-https://bl4ck.pl <br>
-https://blackrp.pl <br>
-https://blindingcity.pl <br>
-https://blithbot.tk <br>
-https://bluestore.com.pl <br>
-https://bowmc.net <br>
-https://boxrip.pl <br>
-https://boxrush.fun <br>
-https://boxstop.pl <br>
-https://brojoneqcfg.pl <br>
-https://buzzycoin.cf <br>
-https://cashcraft.pl <br>
-https://celrp.city <br>
-https://centerrp.eu <br>
-https://chestbox.pl <br>
-https://cispixel.pl <br>
-https://civilizations.com.pl <br>
-https://clusty.fun <br>
-https://crazyalts.eu <br>
-https://cryptomailfaucet.com <br>
-https://dafhc.pl <br>
-https://dandelionlabel.online <br>
-https://dc.aveclient.pl <br>
-https://dc.mcprzygoda.pl <br>
-https://dc.meowplay.pl <br>
-https://dev-cord.xyz <br>
-https://devgotowka.pl <br>
-https://diamondcities.fun <br>
-https://dinocraftmc24.pl <br>
-https://doge-faucet.cf <br>
-https://dogeminer.cf <br>
-https://doggowice.pl <br>
-https://dritun.pl <br>
-https://droppvp.pl <br>
-https://duck-mc.pl <br>
-https://duncraft.pl <br>
-https://easype.pl <br>
-https://eatfitil.com <br>
-https://edymy.pl <br>
-https://elasticmc.pl <br>
-https://elementsmc.pl <br>
-https://elitemc.pl <br>
-https://elytrahc.pl <br>
-https://empire-mc.pl <br>
-https://endern.gq <br>
-https://endhost.pl <br>
-https://endhosting.pl <br>
-https://erwi.pl <br>
-https://fajnepremki.xyz <br>
-https://farmmc.net <br>
-https://farmmc.pl <br>
-https://fast4u.pl <br>
-https://ffacloud.pl <br>
-https://fijifn.shop <br>
-https://filmora.pl <br>
-https://firehc.eu <br>
-https://flamecore.pl <br>
-https://fllestore.pl <br>
-https://florax.pl <br>
-https://flowclient.cf <br>
-https://flufs.com.pl <br>
-https://flyestore.pl <br>
-https://forestanarchy.pl <br>
-https://forum.savemc.pl <br>
-https://foxsurvival.pl <br>
-https://freaklyfiles.tk <br>
-https://free-robux-no-scam.click <br>
-https://freefilmy.tk <br>
-https://freepornonline.pl <br>
-https://freshrp.pl <br>
-https://freshrpg.pl <br>
-https://frixhc.pl <br>
-https://frogscraft.pl <br>
-https://frugo-official.tk <br>
-https://gamehost.ml <br>
-https://gaysense.tk <br>
-https://gclicker.pl <br>
-https://gd-capes.pl <br>
-https://gd-host.pl <br>
-https://ghostmc.com.pl <br>
-https://gocityrp.pl <br>
-https://groowcraft.pl <br>
-https://gtcraft.eu <br>
-https://hardhost.eu <br>
-https://harmatic.xyz <br>
-https://haxteam.xyz <br>
-https://heden-company.pl <br>
-https://helpful-fairies.pl <br>
-https://hexmarket.site <br>
-https://homerp.pl <br>
-https://hostyar.tk <br>
-https://hustmc.pl <br>
-https://hype-mc.pl <br>
-https://infinitycash.site <br>
-https://intmc.pl <br>
-https://intuxcommunity.pl <br>
-https://ip247.ip-137-74-3.eu <br>
-https://justhard.pl <br>
-https://kacpergra.pl <br>
-https://kacperkrus.pl <br>
-https://kaminskibau.de <br>
-https://kawazhtxem.pl <br>
-https://kfc.quest <br>
-https://kikiswiat.pl <br>
-https://kindmc.pl <br>
-https://kinonetwork.ml <br>
-https://kitcraft.pl <br>
-https://klasa4ct.space <br>
-https://kochamblonnik.pl <br>
-https://kochamzabke.pl <br>
-https://kopernikquiz.pl <br>
-https://kosimygroszowice.pl <br>
-https://kraczkowa.fun <br>
-https://kretuj.eu <br>
-https://ktopytal.blumc.pl <br>
-https://legionmc.pl <br>
-https://lemure.pl <br>
-https://light-roleplay.pl <br>
-https://liscraft.pl <br>
-https://logowanie.edu.olsztyn.pl <br>
-https://lotmc.pl <br>
-https://lotprobny.rypix.pl <br>
-https://loxmc.pl <br>
-https://luckyapi.eu <br>
-https://luisboon.xyz <br>
-https://lzio.titdb.com <br>
-https://mail.kaminskibau.de <br>
-https://majkraftbox.pl <br>
-https://makowski.store <br>
-https://marketingmax.pl <br>
-https://maxoshop.pl <br>
-https://mc.minecop.pl <br>
-https://mccuksy.pl <br>
-https://mcflash.pl <br>
-https://mcspace.info <br>
-https://meowplay.pl <br>
-https://mercurydisposal.pl <br>
-https://metharp.pl <br>
-https://mikolajwid.pl <br>
-https://minecraftsmp.pl <br>
-https://mineserw.pl <br>
-https://mitycznadolina.net <br>
-https://nothingmc.pl <br>
-https://nothingmp.pl <br>
-https://ogfortnite.xyz <br>
-https://opime.online <br>
-https://opime.pl <br>
-https://opime.site <br>
-https://pandarp.eu <br>
-https://phantomrp.pl <br>
-https://polskiesingielki.site <br>
-https://rajdmc.pl <br>
-https://robloxcasino.pl <br>
-https://rvj.lol <br>
-https://rypix.pl <br>
-https://soganshop.pl <br>
-https://stormland.pl <br>
-https://syntaxgroup.pl <br>
-https://techcode.store <br>
-https://tesco.com.pl <br>
-https://uhccenter.eu <br>
-https://vistryrpg.pl <br>
-https://vossen.tk <br>
-https://yt.blumc.pl <br>
-https://ammounity.space <br>
-https://bushgame.pl <br>
-https://czitcode.pl <br>
-https://dreamnetwork.store <br>
-https://dzik.sex.pl <br>
-https://emailspammer.cf <br>
-https://formc.pl <br>
-https://foxybus.pl <br>
-https://gcapes.pl <br>
-https://genesistokenfinance.com <br>
-https://hackerzy.space <br>
-https://hypikmc.pl <br>
-https://infoslawno.pl <br>
-https://ironaxe.pl <br>
-https://jurajscymotocyklisci.pl <br>
-https://kailcraft.pl <br>
-https://kochamcie.live <br>
-https://kotolandia.pl <br>
-https://lajtpvp.net <br>
-https://legendarymc.pl <br>
-https://magicpvp.pl <br>
-https://magnez.eu <br>
-https://mccase.pl <br>
-https://mcprzygoda.pl <br>
-https://mcwitcher.pl <br>
-https://michal-kaczor.store <br>
-https://mkochman.pl <br>
-https://mrgofer.pl <br>
-https://mrq-boxpvp.pl <br>
-https://needplay.pl <br>
-https://nerth.pl <br>
-https://netrp.pl <br>
-https://nexonkox-delivery.pl <br>
-https://neynacraft.pl <br>
-https://nft.meowplay.pl <br>
-https://niggerland.pl <br>
-https://nitzu.pl <br>
-https://normahvh.pl <br>
-https://northcraft.pl <br>
-https://northlife.pl <br>
-https://oczydrona.pl <br>
-https://olejek.shop <br>
-https://ovndevs.pl <br>
-https://pandemonium.store <br>
-https://pgen.tk <br>
-https://pierok.xyz <br>
-https://piwnicamc.pl <br>
-https://pixelot.tech <br>
-https://planetsklep.pl <br>
-https://plikiwin.tk <br>
-https://plorbs.com <br>
-https://pm-gallery.pl <br>
-https://poczta.ossys.pl <br>
-https://pokerhc.pl <br>
-https://poliform24.pl <br>
-https://privacy.meowplay.pl <br>
-https://project-md.xyz <br>
-https://projectvision.pl <br>
-https://prooomocje.pl <br>
-https://prosty-kurs.pl <br>
-https://ptrp.pl <br>
-https://quiz.tkulig.com <br>
-https://realityrp.pl <br>
-https://reast.pl <br>
-https://rekrutacja.blumc.pl <br>
-https://rekrutacja.survimliek.pl <br>
-https://rentoutme.pl <br>
-https://reslayprankxd.pl <br>
-https://revellx-cloud.pl <br>
-https://riverclicker.pl <br>
-https://robiiox.gq <br>
-https://robiox-com.gq <br>
-https://rockfordrecords.pl <br>
-https://roleplaywpn.xyz <br>
-https://rollcraft.pl <br>
-https://rules.meowplay.pl <br>
-https://s0rs.pl <br>
-https://secretisland.pl <br>
-https://serwermc.rypix.pl <br>
-https://sexware.tk <br>
-https://shadowsmm.store <br>
-https://shopnite.fun <br>
-https://silvermta.pl <br>
-https://site5.trojansky.pl <br>
-https://sklep-godcash.pl <br>
-https://sklep.avenhc.pl <br>
-https://sklep.rcgc.pl <br>
-https://sklep.stopcraft.pl <br>
-https://sklepkrokodylmc.pl <br>
-https://sokey-development.pl <br>
-https://staff.meowplay.pl <br>
-https://standcity.pl <br>
-https://starcash.pl <br>
-https://stasiormc.pl <br>
-https://stevecraft.pl <br>
-https://store.meowplay.pl <br>
-https://storeworldmc.pl <br>
-https://stroikihanny.ovh <br>
-https://sublist.pl <br>
-https://sunnymc.pl <br>
-https://supergaming.fun <br>
-https://survivalmc.pl <br>
-https://survix.pl <br>
-https://tastmc-store.xyz <br>
-https://teenagecoders.eu <br>
-https://testhc.pl <br>
-https://testwlssmp0.pl <br>
-https://tiktak-edukacja.store <br>
-https://timeclicker.pl <br>
-https://titdb.com <br>
-https://toazzymc.pl <br>
-https://tramwaje.net <br>
-https://turtlecrafts.pl <br>
-https://twistermc.pl <br>
-https://twojbazarek.tk <br>
-https://unknownuser.space <br>
-https://usg-pluca.pl <br>
-https://vcbots.eu <br>
-https://vlog.rypix.pl <br>
-https://warcastle.pl <br>
-https://warmingstore.pl <br>
-https://warplay.ml <br>
-https://waterbox.fun <br>
-https://watercape.pl <br>
-https://weight-client.tk <br>
-https://widerp.pl <br>
-https://wolfcode.pl <br>
-https://world-life.pl <br>
-https://wroclawskikoks.pl <br>
-https://wvwvw-robiox.gq <br>
-https://wywiadyzhtxem.pl <br>
-https://xfet.eu <br>
-https://xn--szkatua-sjb.pl <br>
-https://xnajrakispro.tk <br>
-https://xsky-land.pl <br>
-https://xyzz.fun <br>
-https://yamashi.xyz <br>
-https://yearcraft.pl <br>
-https://yourmine.pl <br>
-https://zakodujestrone.pl <br>
-https://zerovapeshop.pl <br>
-https://zonemine.pl <br>
-https://ztzmc.pl <br>
-https://zuber.blumc.pl <br>
-https://zuber.survimliek.pl <br>
+https://hypixelnig.ga <br>
+2b2tshop.store
+666shop.pl
+720rp.pl
+acpis.pl
+adrian.harezlak.pl
+agecore.pl
+airmc.pl
+akyszdesign.pl
+alienbot.pl
+andrzej-solowiow.pl
+angelmc.pl
+antisquad.pl
+aogiri-online.eu
+apple-craft.pl
+aqualeaks.pl
+arecraft.pl
+ariyateam.pl
+asentra64.xyz
+asf-rp.pl
+autka-zgierz.pl
+avalion.fun
+aveclient.pl
+aveclient.xyz
+avehost.pl
+avenisrp.pl
+awokado.xyz
+babok.com.pl
+bawelniakowo.pl
+bearzillagames.com
+bedsteal.pl
+beesee.pl
+bestsiderp.pl
+bl4ck.pl
+blackrp.pl
+blindingcity.pl
+blithbot.tk
+bluestore.com.pl
+bowmc.net
+boxrip.pl
+boxrush.fun
+boxstop.pl
+brojoneqcfg.pl
+buzzycoin.cf
+cashcraft.pl
+celrp.city
+centerrp.eu
+chestbox.pl
+cispixel.pl
+civilizations.com.pl
+clusty.fun
+crazyalts.eu
+cryptomailfaucet.com
+dafhc.pl
+dandelionlabel.online
+dc.aveclient.pl
+dc.mcprzygoda.pl
+dc.meowplay.pl
+dev-cord.xyz
+devgotowka.pl
+diamondcities.fun
+dinocraftmc24.pl
+doge-faucet.cf
+dogeminer.cf
+doggowice.pl
+dritun.pl
+droppvp.pl
+duck-mc.pl
+duncraft.pl
+easype.pl
+eatfitil.com
+edymy.pl
+elasticmc.pl
+elementsmc.pl
+elitemc.pl
+elytrahc.pl
+empire-mc.pl
+endern.gq
+endhost.pl
+endhosting.pl
+erwi.pl
+fajnepremki.xyz
+farmmc.net
+farmmc.pl
+fast4u.pl
+ffacloud.pl
+fijifn.shop
+filmora.pl
+firehc.eu
+flamecore.pl
+fllestore.pl
+florax.pl
+flowclient.cf
+flufs.com.pl
+flyestore.pl
+forestanarchy.pl
+forum.savemc.pl
+foxsurvival.pl
+freaklyfiles.tk
+free-robux-no-scam.click
+freefilmy.tk
+freepornonline.pl
+freshrp.pl
+freshrpg.pl
+frixhc.pl
+frogscraft.pl
+frugo-official.tk
+gamehost.ml
+gaysense.tk
+gclicker.pl
+gd-capes.pl
+gd-host.pl
+ghostmc.com.pl
+gocityrp.pl
+groowcraft.pl
+gtcraft.eu
+hardhost.eu
+harmatic.xyz
+haxteam.xyz
+heden-company.pl
+helpful-fairies.pl
+hexmarket.site
+homerp.pl
+hostyar.tk
+hustmc.pl
+hype-mc.pl
+infinitycash.site
+intmc.pl
+intuxcommunity.pl
+ip247.ip-137-74-3.eu
+justhard.pl
+kacpergra.pl
+kacperkrus.pl
+kaminskibau.de
+kawazhtxem.pl
+kfc.quest
+kikiswiat.pl
+kindmc.pl
+kinonetwork.ml
+kitcraft.pl
+klasa4ct.space
+kochamblonnik.pl
+kochamzabke.pl
+kopernikquiz.pl
+kosimygroszowice.pl
+kraczkowa.fun
+kretuj.eu
+ktopytal.blumc.pl
+legionmc.pl
+lemure.pl
+light-roleplay.pl
+liscraft.pl
+logowanie.edu.olsztyn.pl
+lotmc.pl
+lotprobny.rypix.pl
+loxmc.pl
+luckyapi.eu
+luisboon.xyz
+lzio.titdb.com
+mail.kaminskibau.de
+majkraftbox.pl
+makowski.store
+marketingmax.pl
+maxoshop.pl
+mc.minecop.pl
+mccuksy.pl
+mcflash.pl
+mcspace.info
+meowplay.pl
+mercurydisposal.pl
+metharp.pl
+mikolajwid.pl
+minecraftsmp.pl
+mineserw.pl
+mitycznadolina.net
+nothingmc.pl
+nothingmp.pl
+ogfortnite.xyz
+opime.online
+opime.pl
+opime.site
+pandarp.eu
+phantomrp.pl
+polskiesingielki.site
+rajdmc.pl
+robloxcasino.pl
+rvj.lol
+rypix.pl
+soganshop.pl
+stormland.pl
+syntaxgroup.pl
+techcode.store
+tesco.com.pl
+uhccenter.eu
+vistryrpg.pl
+vossen.tk
+yt.blumc.pl
+ammounity.space
+bushgame.pl
+czitcode.pl
+dreamnetwork.store
+dzik.sex.pl
+emailspammer.cf
+formc.pl
+foxybus.pl
+gcapes.pl
+genesistokenfinance.com
+hackerzy.space
+hypikmc.pl
+infoslawno.pl
+ironaxe.pl
+jurajscymotocyklisci.pl
+kailcraft.pl
+kochamcie.live
+kotolandia.pl
+lajtpvp.net
+legendarymc.pl
+magicpvp.pl
+magnez.eu
+mccase.pl
+mcprzygoda.pl
+mcwitcher.pl
+michal-kaczor.store
+mkochman.pl
+mrgofer.pl
+mrq-boxpvp.pl
+needplay.pl
+nerth.pl
+netrp.pl
+nexonkox-delivery.pl
+neynacraft.pl
+nft.meowplay.pl
+niggerland.pl
+nitzu.pl
+normahvh.pl
+northcraft.pl
+northlife.pl
+oczydrona.pl
+olejek.shop
+ovndevs.pl
+pandemonium.store
+pgen.tk
+pierok.xyz
+piwnicamc.pl
+pixelot.tech
+planetsklep.pl
+plikiwin.tk
+plorbs.com
+pm-gallery.pl
+poczta.ossys.pl
+pokerhc.pl
+poliform24.pl
+privacy.meowplay.pl
+project-md.xyz
+projectvision.pl
+prooomocje.pl
+prosty-kurs.pl
+ptrp.pl
+quiz.tkulig.com
+realityrp.pl
+reast.pl
+rekrutacja.blumc.pl
+rekrutacja.survimliek.pl
+rentoutme.pl
+reslayprankxd.pl
+revellx-cloud.pl
+riverclicker.pl
+robiiox.gq
+robiox-com.gq
+rockfordrecords.pl
+roleplaywpn.xyz
+rollcraft.pl
+rules.meowplay.pl
+s0rs.pl
+secretisland.pl
+serwermc.rypix.pl
+sexware.tk
+shadowsmm.store
+shopnite.fun
+silvermta.pl
+site5.trojansky.pl
+sklep-godcash.pl
+sklep.avenhc.pl
+sklep.rcgc.pl
+sklep.stopcraft.pl
+sklepkrokodylmc.pl
+sokey-development.pl
+staff.meowplay.pl
+standcity.pl
+starcash.pl
+stasiormc.pl
+stevecraft.pl
+store.meowplay.pl
+storeworldmc.pl
+stroikihanny.ovh
+sublist.pl
+sunnymc.pl
+supergaming.fun
+survivalmc.pl
+survix.pl
+tastmc-store.xyz
+teenagecoders.eu
+testhc.pl
+testwlssmp0.pl
+tiktak-edukacja.store
+timeclicker.pl
+titdb.com
+toazzymc.pl
+tramwaje.net
+turtlecrafts.pl
+twistermc.pl
+twojbazarek.tk
+unknownuser.space
+usg-pluca.pl
+vcbots.eu
+vlog.rypix.pl
+warcastle.pl
+warmingstore.pl
+warplay.ml
+waterbox.fun
+watercape.pl
+weight-client.tk
+widerp.pl
+wolfcode.pl
+world-life.pl
+wroclawskikoks.pl
+wvwvw-robiox.gq
+wywiadyzhtxem.pl
+xfet.eu
+xn--szkatua-sjb.pl
+xnajrakispro.tk
+xsky-land.pl
+xyzz.fun
+yamashi.xyz
+yearcraft.pl
+yourmine.pl
+zakodujestrone.pl
+zerovapeshop.pl
+zonemine.pl
+ztzmc.pl
+zuber.blumc.pl
+zuber.survimliek.pl
